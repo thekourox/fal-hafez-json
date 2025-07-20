@@ -8,7 +8,7 @@
 
 ## حمایت مالی
 اگر فکر میکنید کمکی بهتون کردم و در توانتون بود ، خوشحال میشم حمایت مالی کنید :))
-https://www.coffeebede.com/amirmarandi
+https://www.coffeebede.com/nikmarandi
 
 ## ساختار فایل
 
